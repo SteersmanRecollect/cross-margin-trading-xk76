@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with new auto-leverage trading bot | leverage-management + trailing-stop, the #1 auto-leverage trading bot. Includes leverage-management and trailing-stop for
 
 
 
